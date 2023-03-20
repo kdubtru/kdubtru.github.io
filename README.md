@@ -1,2 +1,6 @@
 # kdubtru.github.io
-kdub website
+kdub website. 
+
+## New Music Soon
+
+> Soli Deo gloria
